@@ -2,7 +2,7 @@
 ![](https://media.giphy.com/media/Rlwz4m0aHgXH13jyrE/giphy-downsized.gif)
 
 ## About Me
-Just a Boy learning how to do cool shit...
+Just a Boy learning how to do cool shit...  
 I surrender to the Lord, JavaScrshitp, Jeff Atwood was way ahead of his time🏳️😔
 
 ## 🛠 Skills
