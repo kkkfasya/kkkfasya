@@ -3,6 +3,7 @@
 
 ## About Me
 Just a Boy learning how to do cool shit...
+I surrender to the Lord, JavaScrshitp, Jeff Atwood was way ahead of his time🏳️😔
 
 ## 🛠 Skills
 Thanks for visiting my page
